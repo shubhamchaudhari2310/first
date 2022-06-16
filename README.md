@@ -1,4 +1,4 @@
-# first
+
 this is for eductional work
 👋 Hi, I’m @shubhamchaudhari2310
 👀 I’m interested in web designing.
